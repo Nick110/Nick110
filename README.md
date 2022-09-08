@@ -1,2 +1,2 @@
-![耿鬼](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1597811266451&di=882c61360645b9271fd0d51c333869a7&imgtype=0&src=http%3A%2F%2F5b0988e595225.cdn.sohucs.com%2Fimages%2F20190103%2F35c4fc180cdc4658993658d2fbffa9af.jpeg)
+![耿鬼](https://gimg2.baidu.com/image_search/src=http%3A%2F%2Finews.gtimg.com%2Fnewsapp_bt%2F0%2F11391222833%2F1000.jpg&refer=http%3A%2F%2Finews.gtimg.com&app=2002&size=f9999,10000&q=a80&n=0&g=0n&fmt=auto?sec=1665222680&t=07e2eb8b2881772d4f400cb10ef9e44b)
 ## 👀你瞅啥？
